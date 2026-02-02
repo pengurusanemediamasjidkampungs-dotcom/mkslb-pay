@@ -21,7 +21,7 @@ Bagi menjamin integriti setiap sen infaq jariah anda, Unit E-Media MKSLB menetap
 | :--- | :--- |
 | **Nama Bank** | Bank Islam Malaysia Berhad (BIMB) |
 | **Nama Akaun** | MASJID KAMPUNG SUNGAI LANG BARU |
-| **Nombor Akaun** | 12065010012345 (Sila rujuk portal utama untuk salinan tepat) |
+| **Nombor Akaun** | 12074010031714 (Sila rujuk portal utama untuk salinan tepat) |
 
 ---
 
